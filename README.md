@@ -63,8 +63,7 @@
 
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/W1cDKXjv/00-01-MAGEN-29-01-2018-20180129-145946-claudia-munoz-valenz.png)
 
-https://mega.nz/file/
-Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
+https://mega.nz/file/Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
 
 
 
