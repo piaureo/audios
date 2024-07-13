@@ -69,6 +69,38 @@ https://mega.nz/file/Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
 
 
 
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/DZmmmbyV/99-Internet-Condominio-Gratis99-www-piaureo-com-www-aiaureo.png)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/VkBgm5NB/aiaureo-com-diaureo-com-piaureo-com-andnitro-alan-aldo-nunez-dalleto-date-20230827-015338-COLLAGE.jpg)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/Rqx0Ps19/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Celulares-Estaticos-Cargadores-Big-Data-14.gif)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/FRqzSs7Y/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Cel-005.jpg)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/RhHFL5HX/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Cel-007.jpg)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/TYbQNtMs/Educacionn-ECONOMIA-Pi-D-Funcion-de-Transferencia-Estanques.jpg)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/KcR0BZ9x/Educacionn-ECONOMIA-Pi-D-Funcion-de-Transferencia-Estanq-002.png)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/T2FCcZSm/Educacionn-ECONOMIA-Pi-D-Funcion-de-Transferencia-Estanq-003.png)
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/L8MDcjm8/Educacionn-ECONOMIA-Pi-D-Funcion-de-Transferencia-Estanques-c.png)
+
+
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/Rqx0Ps19/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Celulares-Estaticos-Cargadores-Big-Data-14.gif)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/RhHFL5HX/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Cel-007.jpg)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/g2NhghJ5/99-Internet-Condominio-Gratis99-www-piaureo-com-www-aiaureo-com-www-diaureo-com-www-pieureo-com-GRAT.png)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/hGvd6GQG/99-pwww-pidchile-com-piaureo-com-aiaureo-com-diaureo-com.png)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/QCGKFk4B/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Celulares-Estaticos-Cargadores-Big-Data-04.jpg)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/QtWWNnbG/ca-times-brightspotcdn.jpg)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/0N4wsq70/caracoltv-brightspotcdn.webp)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/6qr2n2gM/COMO-CAMBIAR-EL-MUNDO-HACER-HISTORIA-DE-LA-HUMANIDAD-CON-MIS.png)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/nVBQ6grq/uva-uvb-uvc-phototheraphy-ejemplos-Artificial-intelligence-www-piaureo-com-www-aiaureo-com-www-diaur.jpg)
+![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/FsvJmpk8/uva-uvb-uvc-sensores-ejemplos-Artificial-intelligence-www-pi.png)
+
+
+
 
 
 
