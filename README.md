@@ -2,8 +2,14 @@
 
 ![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/Wj0Bcc6s/Sin-t-tulo.png)
 
-![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/hPyCssFt/www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com.png)
-
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://camo.githubusercontent.com/7e383904fac3ced0cfb05adba8897607e346ef3020466bd7ef9ea94ed3c11113/68747470733a2f2f692e706f7374696d672e63632f34474444307863382f38322d6172636869766f2d746578746f2d706c616e6f2d7777772d7069617572656f2d636f6d2d7777772d6169617572656f2d636f6d2d7777772d6469617572656f2d636f6d2d7777772d7069657572656f2d636f6d2d30312e706e67)
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/HHcVJ7pm/animales-carnivoros-ejemplos-Artificial-intelligence-piaureo-com-aiaureo-com-diaureo-com-alan-fechas.jpg)
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/Z46nHtBD/ESTO-E-1.png)
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/1RwmvwtN/9999999999-Holy-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com-Holy-copia-15.png)
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/GL99x4Gk/IMG-20240705-123807-604.jpg)
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/gz5jSGH1/GRATIS-1055-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-diaureo-com-www-piaureo-com-cuantos.jpg)
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/vHvQsy5Y/GRATIS-1056-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-diaureo-com-www-piaureo-com-La-Suer.png)
+![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/XncZjSny/IMG-20240705-123055-149.jpg)
 
 ![TENGO QUE HACER TODO YO  NO SE PROGRAMAR  MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/8NHxsd03/www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com-www-pidchile-com.png)
 
