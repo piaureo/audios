@@ -139,7 +139,7 @@ https://mega.nz/file/Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
 
 
 
-
+####################3333333333333333333333333333333333333333333333333333####################################################################################
 
 
 
@@ -178,17 +178,6 @@ https://mega.nz/file/Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/nVBQ6grq/uva-uvb-uvc-phototheraphy-ejemplos-Artificial-intelligence-www-piaureo-com-www-aiaureo-com-www-diaur.jpg)
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/FsvJmpk8/uva-uvb-uvc-sensores-ejemplos-Artificial-intelligence-www-pi.png)
 
-
-
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/Bs33fRjb/IMG-20240705-123055-149.jpg)
-
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/hg0BDMmr/IMG-20240705-123412-474.jpg)
-
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/z8tYWB0H/IMG-20240705-123807-604.jpg)
-
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/X470pFc0/IMG-20240705-125846-375.jpg)
-
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/ryq2GRBx/IMG-20240705-125900-916.jpg)
 
 
 
