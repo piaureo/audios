@@ -174,9 +174,7 @@ https://mega.nz/file/Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/QCGKFk4B/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Celulares-Estaticos-Cargadores-Big-Data-04.jpg)
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/QtWWNnbG/ca-times-brightspotcdn.jpg)
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/0N4wsq70/caracoltv-brightspotcdn.webp)
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/6qr2n2gM/COMO-CAMBIAR-EL-MUNDO-HACER-HISTORIA-DE-LA-HUMANIDAD-CON-MIS.png)
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/nVBQ6grq/uva-uvb-uvc-phototheraphy-ejemplos-Artificial-intelligence-www-piaureo-com-www-aiaureo-com-www-diaur.jpg)
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/FsvJmpk8/uva-uvb-uvc-sensores-ejemplos-Artificial-intelligence-www-pi.png)
+
 
 
 
