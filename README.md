@@ -172,8 +172,7 @@ https://mega.nz/file/Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/g2NhghJ5/99-Internet-Condominio-Gratis99-www-piaureo-com-www-aiaureo-com-www-diaureo-com-www-pieureo-com-GRAT.png)
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/hGvd6GQG/99-pwww-pidchile-com-piaureo-com-aiaureo-com-diaureo-com.png)
 ![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/QCGKFk4B/APP-APK-Android-Detector-Sismos-Triangulacion-Sensor-Celulares-Estaticos-Cargadores-Big-Data-04.jpg)
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/QtWWNnbG/ca-times-brightspotcdn.jpg)
-![TENGO QUE  NO SE PROGRAMAR MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/0N4wsq70/caracoltv-brightspotcdn.webp)
+
 
 
 
